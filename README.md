@@ -1,0 +1,1 @@
+While it does seem like I uploaded everything it's because I deleted the previous files and used different files, I was more consistent with the other files. This does seem a little stupid but it's just some context to what I did. 
